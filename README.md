@@ -1,2 +1,0 @@
-# Test1 ADH401T
-213577158 Khama MA
